@@ -3,7 +3,7 @@
 我的閱讀心得
 
 ## 2021
-
+* [避免只是新年新希望效應《刻意練習》閱讀心得](https://sweetornotspicymarathon.medium.com/%E9%81%BF%E5%85%8D%E5%8F%AA%E6%98%AF%E6%96%B0%E5%B9%B4%E6%96%B0%E5%B8%8C%E6%9C%9B%E6%95%88%E6%87%89-%E5%88%BB%E6%84%8F%E7%B7%B4%E7%BF%92-%E9%96%B1%E8%AE%80%E5%BF%83%E5%BE%97-aca490d7eaf8)
 
 
 ## 2020
